@@ -32,7 +32,7 @@
 ## 📫 Connect with Me
 - 📧 Email: a.tereka@yahoo.com / tereka.agnes@icloud.com  
 - 🌐 Portfolio: *Coming Soon!*  
-- 💬 LinkedIn / Twitter / Dev.to: *(Add your links here when ready)*
+- 💬 LinkedIn / Twitter / (https://www.linkedin.com/in/agnes-tereka-b29653ba)
 
 ---
 
